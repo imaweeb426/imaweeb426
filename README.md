@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @imaweeb426
+- 👋 Hi, I’m @Tsuki
 - 👀 I’m interested in ... anime and manga
 - 🌱 I’m currently learning ... How to work
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ... Subscribe my yt channel it's called Fireworks
+- 📫 How to reach me ... Subscribe my yt channel it's called Tsuki Plays please subscribe.
 
 <!---
 imaweeb426/imaweeb426 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
